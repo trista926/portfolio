@@ -1,7 +1,7 @@
 # Trista's portfolio
 
 ### EDUCATION
-G9-12  	Kang Chiao International School (KCIS), Taiwan 	09/2022-06/2026
+G9-12 | Kang Chiao International School (KCIS), Taiwan 	09/2022-06/2026
 
 ### HONORS AND AWARDS
 - 3rd place in Tennis Competition, CTTA (E-2) Beginner Singles (Out of 8)	11/2022
