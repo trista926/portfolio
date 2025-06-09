@@ -71,5 +71,8 @@ changed everything.
 
 I start to think about this, and start learning how to apply in my daily life and overcome being afraid of my coach and playing tennis. I listened to the useful parts of feedback and let the rest fade away. It wasn’t easy, but I started to regain my confidence, one small step at a time. This experience didn’t just change the way I play tennis, it changed how I respond to negative comments in daily life. For example, when a schoolmate talks behind my back, or even in front of me, it wouldn’t shake me anymore, or even when a teacher was angry and misunderstands me and started to scold me badly, I won’t be as frustrated as I was. Now, I’m not afraid of that coach anymore, I still love to play tennis. I know now that stepping out of the shadows doesn’t mean the sun won’t burn and I found the courage to stand in the light anyway.
 
-### Personal Statement Video: 
+### Personal Narrative Video: 
 -> https://drive.google.com/file/d/1rNrX4nF6KE1_El1jyiDV4lkmxdaX9Y1f/view?usp=sharing
+
+### Persoanl Statement
+
