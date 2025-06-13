@@ -48,16 +48,6 @@ G9-12 | Kang Chiao International School (KCIS), Taiwan 	|    09/2022-06/2026
     Description: I proved an outstanding service today by participating and collaborating with others to perform music to peoples.
 - “Library Volunteer”, Kang Chiao International School	|    8.3H 	|    G9
     Description: I found that volunteering in the school library is a very interesting thing. Although I sometimes want to take a break at noon, when I help to put books on the shelves, when I tidy up a messy bookshelf, I feel a sense of accomplishment, which makes me want to continue doing it.
-
-### INTERNSHIP
-實習職位, 機構	5H/W, 32W/Y 	MM/YYYY-MM/YYYY
-Description: 
-
-### OTHERS
-Languages: 	Mandarin (Native), English (Fluent), Spanish (Beginner), Japanese (1-year)
-Travel Experiences:	USA, Japan, German, UK, Korea, France, Canada, China
-其他興趣、證照也可以放在這邊: 
-
 ---
 
 ### Common app Essay
