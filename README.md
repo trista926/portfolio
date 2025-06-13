@@ -65,6 +65,3 @@ I start to think about this, and start learning how to apply in my daily life an
 
 ### Personal Narrative Video: 
 -> https://drive.google.com/file/d/1rNrX4nF6KE1_El1jyiDV4lkmxdaX9Y1f/view?usp=sharing
-
-### Persoanl Statement
-
