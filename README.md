@@ -3,6 +3,8 @@
 ### EDUCATION
 G9-12 | Kang Chiao International School (KCIS), Taiwan 	|    09/2022-06/2026
 
+**Want to apply German University**
+
 ### HONORS AND AWARDS
 - 3rd place in Tennis Competition, CTTA (E-2) Beginner Singles (Out of 8)	|    11/2022
 - Certificate of Cross Sun Moon Lake Completion	    |    09/2022
